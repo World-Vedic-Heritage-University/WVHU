@@ -22,6 +22,6 @@ cash, kind and labour in that colossal, noble, global, educational
 undertaking, for world unity, understanding and peace. 
 
 <p align="right">
-Purushottam Nagesh Oak, World Vedic Heritage: A History of Histories 
+Purushottam Nagesh Oak, World Vedic Heritage: A History of Histories PAGE 1 
 </p>
 
